@@ -2,6 +2,6 @@
 
 show the love line with my grilfriend Rongrong,
 
-制作给我的女朋友Rong，祝我们百年好合
+给我的男朋友syb，祝我们百年好合
 
 address: https://www.aomanhao.top/LoveHeart/
